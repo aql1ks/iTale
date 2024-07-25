@@ -1,0 +1,1 @@
+iTale - AI Book Store
